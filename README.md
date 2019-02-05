@@ -1,0 +1,1 @@
+# statistical-analysis-of-suicide-data-in-india
